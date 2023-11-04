@@ -17,7 +17,7 @@ As a engineer, I enjoy using my obsessive attention to detail, my unequivocal lo
 - 💬 Ask me about anything, I am happy to help;
 
 - 📫 How to reach me: msdesai32@gmail.com;
-- 📝 [Resume](https://drive.google.com/file/d/1ZlglBf-cWYZ3Tbv8ZlHTUTw9kTVNuS16/view).
+- 📝 [Resume](MAYURResume.pdf).
 
 </br>
 
